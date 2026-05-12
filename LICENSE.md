@@ -1,4 +1,4 @@
-#  
+#  Fantastical for macOS exclusive Macro: custom shortcuts & AI assistant offers the most advanced Fantastical for macOS macro, with custom shortcuts and AI assistant. Ideal for
 
 
 
